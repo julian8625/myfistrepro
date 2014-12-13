@@ -1,2 +1,0 @@
-Café Kotti 
-Kottbusser Tor
